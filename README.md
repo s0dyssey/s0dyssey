@@ -10,6 +10,7 @@
 - 📫 How to reach me **sowusu2015@gmail.com**
 
 <h3 align="left">Connect with me:</h3>
+**https://www.linkedin.com/in/samuel-owusu8/**
 <p align="left">
 </p>
 
